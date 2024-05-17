@@ -14,3 +14,5 @@ And as always happy creatin!
 
 > [!CAUTION]
 > This could have 18+ content so play the release in your own risk
+
+<sup>Nax Unknown©</sup>
